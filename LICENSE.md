@@ -1,4 +1,4 @@
-# 
+# liquidation sniper bot exclusive Strategy | cross-margin & perpetual-trading is the best liquidation sniper bot, featuring cross-margin and perpetual-trading. Smart, fast, and
 
 
 
